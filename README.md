@@ -24,6 +24,6 @@ I've accepted the offer as Software Engineer Intern from LinkedIn for summer 201
 
 ## Update in Sept. 2019
 
-I'v accepted the return offer from LinkedIn. Feel free to contact by email or [LinkedIn](https://www.linkedin.com/in/wenhans/) profile.
+I've accepted the return offer from LinkedIn. Feel free to contact by email or [LinkedIn](https://www.linkedin.com/in/wenhans/) profile.
 
 by [Wenhan](mailto:wenhanshi2018@gmail.com)
